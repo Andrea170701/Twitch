@@ -31,6 +31,7 @@ Samsung Memorie MZ-V7S500 970 EVO Plus SSD Interno da 500GB, PCle NVMe M.2
 
 **[MOUSE, TASTIERA E TAPPETINO](https://www.amazon.it/gp/product/B07YGCCBSZ/ref=ppx_yo_dt_b_asin_title_o03_s00?ie=UTF8&psc=1 "MOUSE, TASTIERA e TAPPETINO")**
 *THE G-LAB Combo ARGON E Pacchetto di Gioco 4 in 1 - Tastiera Gamer ITALIANA Retroilluminata, Mouse Gamer 3200 DPI, Cuffia da Gioco, Tappetino Mouse Antiscivolo - PC Mac PS4 Xbox* 
-**Di queste non uso le cuffie, perchè non mi trovo bene**
+
+**Di questo set non uso le cuffie, perchè non mi trovo bene**  
 
 
