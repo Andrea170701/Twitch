@@ -1,7 +1,7 @@
 
-**Alimentatore**
+**[Alimentatore](https://www.amazon.it/gp/product/B019NWQSOC/ref=ppx_yo_dt_b_asin_title_o01_s00?ie=UTF8&psc=1 "Alimentatore")**
 *Corsair CX650M Alimentatore PC, 80 Plus Bronze, 650 W, CXM (Cavo semimodulare), Nero*
-[Alimentatore](https://www.amazon.it/gp/product/B019NWQSOC/ref=ppx_yo_dt_b_asin_title_o01_s00?ie=UTF8&psc=1 "Alimentatore")
+
 
 RAM:https://www.amazon.it/gp/product/B07TB3R9JB/ref=ppx_yo_dt_b_asin_title_o02_s00?ie=UTF8&psc=1
 Corsair Vengeance RGB PRO Black DDR4-RAM 3600 MHz 2x 8GB memoria
